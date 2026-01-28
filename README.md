@@ -38,7 +38,7 @@ ${\textsf{\color{#00a383}- Olivia O., "Mantis"}}$
 - do not involve me in fandom or ship discourse.
 	- I'd rather not label myself as antiship or proship. Antiship because I used to be one and it put me in immense amounts of danger and distress and it exposes people to more upsetting material than it aims to protect them against, and Proship because the moment people hear that word in any capacity, conversations get unproductive and misinformative, and even violent, not to mention there's a lot of harm that the label can allow to hide behind it. But I'm certainly <b>not neutral</b> either and will voice my opinions on what I do and do not agree with when needed.
 	- I also think there is way too much nuance to simply dumb the two sides down to whether fictions simply "does/doesn't" affect reality and fully diving into that would take way too long for me to properly articulate. I also don't want to revolve a lot of my time here to discourse so I'm not eager to have to make a post explaining unless absolutely necessary. I don't want my opinions attached to any label on the discussion.
- - ${\textsf{\color{#00ffcc}either party is allowed to follow me. As long as you're reasonable, I'm reasonable. As long as you don't make your thoughts on the matter my problem, I'm fine with you being around.}}$
+	- ${\textsf{\color{#00ffcc}either party is allowed to follow me. As long as you're reasonable, I'm reasonable. I'm fine with you being around.}}$
 	- If you must know? Ask me privately. If you have an issue with that or what I respond with? Block me, I do not care.
 
 - I have no definitive DNI, and will leave it up to you whether or not you wish to engage in my content. I will warn you, howerver, that if you are any of the following:
