@@ -59,6 +59,4 @@ ${\textsf{\color{#00a383}- Olivia O., "Mantis"}}$
     - think bugs can't feel pain
 			- (don't touch me within a ten-foot pole)
 - you are at very high risk of being blocked by me, as you are not someone I'd wish to be associated with.
-
-${\textsf{\color{#00ffcc}placeholder}}$
 <img src="https://i.postimg.cc/XYv9Wkhr/image-2024-05-23-230305777.png">
